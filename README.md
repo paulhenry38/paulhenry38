@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @paulhenry
-- 👀 I’m interested in hands-on-craft and community economy development to help save the planet!!!!!!
+- 👀 I’m interested in hands-on-craft and community economy development to help save the planet!!!!!!  also called localism, glocalism, cosmolocalism, Peer2Peer, hands-on-craft, CRAFT, haptic happiness, crafty eccentrics and so forth
 - 🌱 I’m currently learning GitHub and basic video work
 - 💞️ I’m looking to collaborate on podcasts on the above (probably about 6).  I have been working in this field for over 30years independently and as an academic in Australia 
 - 📫 How to reach me pau@craftyeccentrics.com
